@@ -1,4 +1,4 @@
-# 👋 Hi there! I'm Aya Nabil Fathy Deraz
+# 👋 Hi there! I'm Aya Nabil 
 
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-22204a227-blue?logo=linkedin)](https://linkedin.com/in/aya-nabil-22204a227)  
 📧 **ayanabil617@gmail.com** | 📍 **Zifta, Al-Gharbia**  
